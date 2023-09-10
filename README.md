@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 My name is Caroline Hamon and I am an advertising and studio art major at Florida State. In my freetime I enjoy hanging out with friends, the outdoors, and country line dancing, yeehaw!
 
 <!--
 **carecmh/carecmh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
